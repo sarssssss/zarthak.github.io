@@ -1,2 +1,1 @@
-# zarthak.github.io
-This page is for gym rats only 🫂
+# zarthak.github.i0
